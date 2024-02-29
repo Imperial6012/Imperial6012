@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Imperial6012
 - 👀 I’m interested in Games
-- 🌱 I’m currently learning FUNIX, CodeGym and PTIT
+- 🌱 I’m currently learning at PTIT
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me: Phone: +84399595999
                        Email: victorimperial2002@gmail.com
